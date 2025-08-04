@@ -107,3 +107,5 @@ https://cf.res.s.zigzag.kr/notice/dd0964bb031347b6a74bc821f8afb898.pdf
 
 
 https://adure.net/uploads/adure/1737507851_Blind)_2025%EB%85%84_%EB%A7%A4%EC%B2%B4%EC%86%8C%EA%B0%9C%EC%84%9C(2025_1Q)_V2.pdf
+
+네이버 사업자 번호 필요
