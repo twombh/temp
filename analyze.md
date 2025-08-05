@@ -106,9 +106,15 @@ https://cf.res.s.zigzag.kr/notice/dd0964bb031347b6a74bc821f8afb898.pdf
 
 
 
-https://adure.net/uploads/adure/1737507851_Blind)_2025%EB%85%84_%EB%A7%A4%EC%B2%B4%EC%86%8C%EA%B0%9C%EC%84%9C(2025_1Q)_V2.pdf
+https://adure.net/uploads/adure/1737507851_Blind_2025%EB%85%84_%EB%A7%A4%EC%B2%B4%EC%86%8C%EA%B0%9C%EC%84%9C(2025_1Q)_V2.pdf
 
-네이버 사업자 번호 필요
+네이버 사업자 번호 필요 - 스플래시기준 5000만원 -> 프로모션 3500만원
 
 
 https://help.airbridge.io/ko/guides/naver-performance-da
+
+카카오모빌리티-KM비즈센터 별도 운행-사업자 등록 필요
+https://t1.kakaocdn.net/adrse/adbizcenter-cdn/document/KM%EB%B9%84%EC%A6%88%EC%84%BC%ED%84%B0%20%EC%9D%B4%EC%9A%A9%20%EA%B0%80%EC%9D%B4%EB%93%9C_v1.4.pdf
+
+에브리타임은 유니브립이란 전용 대행서
+토스나 카카오도 광고주와의 직접 거래는 하나 우수한 에어진시 또한 알려줌
